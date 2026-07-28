@@ -1,0 +1,1 @@
+# pekistirmeli_-renme_ile_donmus_gol_gorevi
